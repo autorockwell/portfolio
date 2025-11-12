@@ -3,7 +3,7 @@
 ### Technical Skills: skill 1, skill 2, skill 3
 
 ## Education
-Columbia University, Bachelor of Arts in English and Computer Science
+B.A., English Literature and Computer Science | Columbia University (2024)
 
 ## Work Experience
 
