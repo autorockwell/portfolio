@@ -49,6 +49,6 @@ Digging through the roots of New York City's first micro-forest and the thriving
 
 [Read the essay here.](https://www.dropbox.com/scl/fi/mi6wz6igqn2n8lsptw593/full_thesis.pdf?rlkey=m49md6suj3j3v9xwpae96gmgr&st=l165m00g&dl=0)
 
-For my senior essay in English, I produced an 89-page graphic thesis on the Taiwanese travel writer San Mao and her travelogue _Stories of the Sahara_. The essay was awarded the Charles Paterno Barratt-Brown Memorial Prize and the Karen Osney Brownstein Writing Prize.
+For my senior essay in English, I produced an 97-page graphic thesis on the Taiwanese travel writer San Mao and her travelogue _Stories of the Sahara_. The essay was awarded the Charles Paterno Barratt-Brown Memorial Prize and the Karen Osney Brownstein Writing Prize.
 
 ## Editorial Illustration and Graphic Design
