@@ -14,6 +14,7 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
   - Features on accessible hospitality
 - Project manages production on the annual _Readers' Choice Awards_
 - Writes, commissions, and edits on the magazine's books and literature beat
+- Writes as a part of _CNT_'s news desk
 
 **Editorial Intern at _Bon Appétit_ (_June 2023 - August 2023_)**
 - Worked in the Test Kitchen on recipe development and testing for the 2023 Thanksgiving Issue
