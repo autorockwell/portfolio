@@ -44,6 +44,8 @@ Digging through the roots of New York City's first micro-forest and the thriving
 
 ![Healing Forest Lede](/assets/Lede_HealingForest.png)
 
-### _The Soft Fossil Record_ | Graphic senior essay reviewed by Columbia University English Department
+### _The Soft Fossil Record_ | Graphic senior essay reviewed by the Columbia University English Department
+
+For my senior essay in English, I produced an 89-page graphic thesis on the Taiwanese travel writer San Mao and her travelogue _Stories of the Sahara_. The essay was awarded the Charles Paterno Barratt-Brown Memorial Prize and the Karen Osney Brownstein Writing Prize.
 
 ## Editorial Illustration and Graphic Design
