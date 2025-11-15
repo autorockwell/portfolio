@@ -30,6 +30,8 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 
 ### "Take Me Home" | Three-page feature in _Condé Nast Traveler_'s December 2025 Issue
 
+Researched and field reported the legacy of the Grand Ole Opry on the legendary venue's 100th anniversary 
+
 ### "Roosevelt Island's Micro-Forest Is Bringing a Quiet Space for New Yorkers" | _Condé Nast Traveler_'s Quiet Places Package
 
 [Publication](https://www.cntraveler.com/story/roosevelt-islands-micro-forest-is-bringing-a-quiet-space-for-new-yorkers)
