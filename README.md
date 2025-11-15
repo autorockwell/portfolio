@@ -7,8 +7,6 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 
 ## Work Experience
 
-![CNT logo](/assets/traveler_logo_smaller.png)
-
 **Editorial Assistant at _Condé Nast Traveler_ (_June 2024 - Present_)**
 
 - Acts as primary contact for the magazine's Destinations vertical comprised of:
@@ -19,14 +17,10 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 - Writes, commissions, and edits on the magazine's books and literature beat
 - Writes as a member of _CNT_'s news desk
 
-![BA logo](/assets/ba_logo_small.png)
-
 **Editorial Intern at _Bon Appétit_ (_June 2023 - August 2023_)**
 - Worked in the Test Kitchen on recipe development and testing for the 2023 Thanksgiving Issue
 - Created original graphics and assets for _Bon Appétit_'s website using Illustrator and Photoshop
 - Produced galleries, cookbook reviews, and technique articles for _Bon Appétit_ and _Epicurious_
-
-![n1 logo](/assets/n_logo_small.png)
 
 **Editorial Intern at _n+1_ (_January 2023 - May 2023_)**
 - Fact-checked and edited pieces by Sander Plejj, Thomas de Monchaux, Nicholas Dames, and Jared Jackson for _n+1_'s 45th issue, "Attachement"
