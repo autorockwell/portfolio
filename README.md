@@ -23,7 +23,7 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 - Produced galleries, cookbook reviews, and technique articles for _Bon Appétit_ and _Epicurious_
 
 **Editorial Intern at _n+1_ (_January 2023 - May 2023_)**
-- Fact-checked and edited pieces by Sander Plejj, Thomas de Monchaux, Nicholas Dames, and Jared Jackson for _n+1_'s 45th issue, "Attachement"
+- Fact-checked and edited pieces by Sander Plejj, Thomas de Monchaux, Nicholas Dames, and Jared Jackson for _n+1_'s 45th issue, "Attachment"
 - Sourced original art for Nicholas Dames's _Solenoid_ review
 - Evaluated submissions and conducted website administration on WordPress
 
