@@ -65,6 +65,8 @@ For my senior essay in English, I produced an 97-page graphic thesis on the Taiw
 
 ### ["You’re Stress-Eating Because Your Brain Literally Thinks It Isn’t Full Yet"](https://www.bonappetit.com/story/stress-eating-brain) | _Bon Appétit_
 
+![Stress-Eating Lede](/assets/eating_lede.png)
+
 ### Bookmarks | _n+1_
 
 ### Bookstore covers | _n+1_
