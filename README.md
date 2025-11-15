@@ -40,7 +40,7 @@ On the Grand Ole Opry's 100th anniversary and its legacy as the lodestar of coun
 
 [Publication](https://www.cntraveler.com/story/roosevelt-islands-micro-forest-is-bringing-a-quiet-space-for-new-yorkers)
 
-Planted in April 2024, New York City's first micro-forest is now home to a thriving interspecies network of native flora and fauna.
+Digging through the roots of New York City's first micro-forest and the thriving interspecies network of native flora and fauna that call it home
 
 ![Healing Forest Lede](/assets/Lede_HealingForest.png)
 
