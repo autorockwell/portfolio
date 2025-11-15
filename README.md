@@ -36,6 +36,8 @@ On the Grand Ole Opry's 100th anniversary and its legacy as the lodestar of coun
 
 [Publication](https://www.cntraveler.com/story/roosevelt-islands-micro-forest-is-bringing-a-quiet-space-for-new-yorkers)
 
+![Healing Forest Lede](/assets/Lede_HealingForest.png)
+
 ### _The Soft Fossil Record_ | Graphic senior essay reviewed by Columbia University English Department
 
 ## Editorial Illustration and Graphic Design
