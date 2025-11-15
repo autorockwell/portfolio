@@ -7,7 +7,9 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 
 ## Work Experience
 
+![CNT logo](/assets/Condé_Nast_Traveler_logo.png)
 **Editorial Assistant at _Condé Nast Traveler_ (_June 2024 - Present_)**
+
 - Acts as primary contact for the magazine's Destinations vertical comprised of:
   - Best things to do, best restaurants, and best hotels guides
   - The "Eat, Stay, Play" column
