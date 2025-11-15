@@ -23,4 +23,6 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 
 ### "Roosevelt Island's Micro-Forest Is Bringing a Quiet Space for New Yorkers" | _Condé Nast Traveler_'s Quiet Places Package
 
+[Publication](https://www.cntraveler.com/story/roosevelt-islands-micro-forest-is-bringing-a-quiet-space-for-new-yorkers)
+
 ### _The Soft Fossil Record_ | Graphic senior essay reviewed by Columbia University English Department
