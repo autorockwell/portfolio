@@ -19,3 +19,5 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 ## Projects 
 
 ### "Take Me Home" | Three-page feature in _Condé Nast Traveler_'s December 2025 Issue
+
+### _The Soft Fossil Record_ | Graphic senior essay reviewed by Columbia University English Department
