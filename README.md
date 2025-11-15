@@ -24,7 +24,7 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 **Editorial Intern at _n+1_ (_January 2023 - May 2023_)**
 - Fact-checked and edited pieces by Sander Plejj, Thomas de Monchaux, Nicholas Dames, and Jared Jackson for _n+1_'s 45th issue, "Attachement"
 - Sourced original art for Nicholas Dames's _Solenoid_ review
-- Evaluaed submissions and conducted website administration on WordPress
+- Evaluated submissions and conducted website administration on WordPress
 
 ## Projects 
 
