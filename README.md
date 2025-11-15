@@ -1,6 +1,6 @@
 # Writer and Editor
 
-### Technical Skills: skill 1, skill 2, skill 3
+### Technical Skills: Python, SQL, Adobe Suite, Google Suite
 
 ## Education
 B.A., English and Computer Science | Columbia University (_June 2024_)
