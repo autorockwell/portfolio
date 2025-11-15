@@ -54,3 +54,13 @@ For my senior essay in English, I produced an 97-page graphic thesis on the Taiw
 ![Comic cover](/assets/comic_cover.png)
 
 ## Editorial Illustration and Graphic Design
+
+### _Women Who Travel_ Instagram Gift Guide | _Condé Nast Traveler_
+
+### "Meet the Vegans Who Only Date Other Vegans" | _Bon Appétit_
+
+### "You’re Stress-Eating Because Your Brain Literally Thinks It Isn’t Full Yet" | _Bon Appétit_
+
+### Bookmarks | _n+1_
+
+### Bookstore covers | _n+1_
