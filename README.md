@@ -40,7 +40,7 @@ On the Grand Ole Opry's 100th anniversary and its legacy as the lodestar of coun
 
 [Read the story here.](https://www.cntraveler.com/story/roosevelt-islands-micro-forest-is-bringing-a-quiet-space-for-new-yorkers)
 
-Digging through the roots of New York City's first micro-forest and the thriving interspecies network of native flora and fauna that call it home
+Digging through the roots of New York City's first micro-forest and the thriving interspecies network of native flora and fauna that calls it home
 
 ![Healing Forest Lede](/assets/Lede_HealingForest.png)
 
