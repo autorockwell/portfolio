@@ -19,6 +19,7 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 **Editorial Intern at _Bon Appétit_ (_June 2023 - August 2023_)**
 - Worked in the Test Kitchen on recipe development and testing for the 2023 Thanksgiving Issue
 - Created original graphics and assets for _Bon Appétit_'s website using Illustrator and Photoshop
+- Produced galleries, cookbook reviews, and technique articles for _Bon Appétit_ and _Epicurious_
 
 **Editorial Intern at _n+1_ (_January 2023 - May 2023_)**
 - sub ex 2
