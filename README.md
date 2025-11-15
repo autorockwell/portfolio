@@ -63,7 +63,7 @@ For my senior essay in English, I produced an 97-page graphic thesis on the Taiw
 
 ![Vegan Dancing Gif](/assets/vegans.gif)
 
-### "You’re Stress-Eating Because Your Brain Literally Thinks It Isn’t Full Yet" | _Bon Appétit_
+### ["You’re Stress-Eating Because Your Brain Literally Thinks It Isn’t Full Yet"](https://www.bonappetit.com/story/stress-eating-brain) | _Bon Appétit_
 
 ### Bookmarks | _n+1_
 
