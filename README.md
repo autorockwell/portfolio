@@ -27,7 +27,7 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 - Sourced original art for Nicholas Dames's _Solenoid_ review
 - Evaluated submissions and conducted website administration on WordPress
 
-## Projects 
+## Clips and Projects 
 
 ### "Take Me Home" | Three-page feature in _Condé Nast Traveler_'s December 2025 Issue
 
