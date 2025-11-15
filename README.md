@@ -55,7 +55,7 @@ For my senior essay in English, I produced an 97-page graphic thesis on the Taiw
 
 ## Editorial Illustration and Graphic Design
 
-### _Women Who Travel_ Instagram Gift Guide | _Condé Nast Traveler_
+### [_Women Who Travel_ Instagram Gift Guide](https://www.instagram.com/p/DDhy6Ssxv7Y/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==) | _Condé Nast Traveler_
 
 ### "Meet the Vegans Who Only Date Other Vegans" | _Bon Appétit_
 
