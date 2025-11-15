@@ -8,7 +8,8 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 ## Work Experience
 
 **Editorial Assistant at _Condé Nast Traveler_ (_June 2024 - Present_)**
-- Acts as primary contact 
+- Acts as primary contact for the magazine's Destinations vertical comprised of best things to do, best restaurants, and best hotels guides; the "Eat, Stay, Play" column; and features on accessible hospitality
+- Project manages production on the annual _Readers' Choice Awards_
 
 **Editorial Intern at _Bon Appétit_ (_June 2023 - August 2023_)**
 - sub ex 2
