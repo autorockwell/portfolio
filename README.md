@@ -35,3 +35,5 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 [Publication](https://www.cntraveler.com/story/roosevelt-islands-micro-forest-is-bringing-a-quiet-space-for-new-yorkers)
 
 ### _The Soft Fossil Record_ | Graphic senior essay reviewed by Columbia University English Department
+
+## Editorial Illustration and Graphic Design
