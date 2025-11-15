@@ -38,7 +38,7 @@ On the Grand Ole Opry's 100th anniversary and its legacy as the lodestar of coun
 
 ### "Roosevelt Island's Micro-Forest Is Bringing a Quiet Space for New Yorkers" | _Condé Nast Traveler_'s "Seeking Quiet" Series
 
-[Publication](https://www.cntraveler.com/story/roosevelt-islands-micro-forest-is-bringing-a-quiet-space-for-new-yorkers)
+[Read the story here.](https://www.cntraveler.com/story/roosevelt-islands-micro-forest-is-bringing-a-quiet-space-for-new-yorkers)
 
 Digging through the roots of New York City's first micro-forest and the thriving interspecies network of native flora and fauna that call it home
 
