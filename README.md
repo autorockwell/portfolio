@@ -69,4 +69,8 @@ For my senior essay in English, I produced an 97-page graphic thesis on the Taiw
 
 ### Bookmarks | _n+1_
 
+![Bookmark Mockup](/assets/Mockup.png)
+
 ### Bookstore covers | _n+1_
+
+![Bookstore Lede](/assets/Wide_Chapter.png)
