@@ -19,7 +19,7 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 - Writes, commissions, and edits on the magazine's books and literature beat
 - Writes as a member of _CNT_'s news desk
 
-![BA logo](/assets/Bon_Appétit_logo.svg.png)
+![BA logo](/assets/ba_logo_small.png)
 
 **Editorial Intern at _Bon Appétit_ (_June 2023 - August 2023_)**
 - Worked in the Test Kitchen on recipe development and testing for the 2023 Thanksgiving Issue
