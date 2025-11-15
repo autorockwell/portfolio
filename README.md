@@ -7,7 +7,7 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 
 ## Work Experience
 
-Tk example
+**Editorial Assistant at _Condé Nast Traveler_ (_June 2024 - Present_)**
 - sub ex
 
 tk example 2
