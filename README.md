@@ -57,7 +57,7 @@ For my senior essay in English, I produced an 97-page graphic thesis on the Taiw
 
 ### [_Women Who Travel_ Instagram Gift Guide](https://www.instagram.com/p/DDhy6Ssxv7Y/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==) | _Condé Nast Traveler_
 
-![Gift guide](/assets/wwt_guide_clip.mov)
+![Gift guide](/assets/wwt_guide_clip.gif)
 
 ### ["Meet the Vegans Who Only Date Other Vegans"](https://www.bonappetit.com/story/vegans-who-only-date-vegans) | _Bon Appétit_
 
