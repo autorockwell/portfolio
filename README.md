@@ -7,7 +7,7 @@ B.A., English and Computer Science | Columbia University (_June 2024_)
 
 ## Work Experience
 
-![CNT logo](/assets/traveler_logo_small.png)
+![CNT logo](/assets/traveler_logo_smaller.png)
 
 **Editorial Assistant at _Condé Nast Traveler_ (_June 2024 - Present_)**
 
